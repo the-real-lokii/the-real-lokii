@@ -1,4 +1,4 @@
-## Hi there 👋
+##![me core](https://i.pinimg.com/736x/ea/36/be/ea36be995c163ea92cc400ea62ba5266.jpg)
 
 <!--
 **the-real-lokii/the-real-lokii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
